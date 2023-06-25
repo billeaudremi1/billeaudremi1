@@ -1,0 +1,5 @@
+- 👋 Bonjour, je suis Billeaud Rémi 
+- 👀 Je suis intéressé par le domaine du dev Web 
+- 📫 Comment me joindre :
+- Twitter : https://twitter.com/Shinigami174
+- Discord : shinigami.equally
