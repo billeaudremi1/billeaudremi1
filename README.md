@@ -3,3 +3,4 @@
 - 📫 Comment me joindre :
 - Twitter : https://twitter.com/Shinigami174
 - Discord : shinigami.equally
+- Travaille pour Equally Web Master 
